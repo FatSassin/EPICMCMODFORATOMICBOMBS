@@ -1,4 +1,4 @@
-# EPIC MC MOD FO RATOMIC BOMBS
+# EPIC MINECRAFT MOD FO RATOMIC BOMBS
 
 ## Descrpition
 Super Epic Mod for Minecraft with atomic bombs and femboy furries
